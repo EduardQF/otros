@@ -1,0 +1,2 @@
+# otros
+programas  aparte
